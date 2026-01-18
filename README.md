@@ -1,4 +1,4 @@
-### Hi there! I'm [Tu Nombre] 👋
+### Hi there! I'm Córdoba 👋
 
 🚀 **Computer Engineering Student | Cybersecurity Enthusiast | Systems**
 
